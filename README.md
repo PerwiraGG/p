@@ -1,2 +1,2 @@
-# rajin-belajar
-Ayo rajin belajar
+P
+P
